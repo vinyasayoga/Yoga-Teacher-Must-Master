@@ -18,4 +18,4 @@ Being a yoga teacher brings a lot of responsibility on your shoulders. It is not
 
 <p>Learning never stops in your life. Hence try to evolve continuously by attending workshops, training, and retreats. No matter how much experienced you become as a yoga trainer, never stop learning. It will help you become more innovative with your teachings.</p>
 
-<b>Also read:</b>  <a href="https://www.academia.edu/41117435/Why_Rishikesh_Vinyasa_Yoga_School_is_Top-Rated_School_for_YTT_in_Rishikesh"> Why Rishikesh Vinyasa Yoga School is Top-Rated School for YTT in Rishikesh?></a>
+<b>Also read:</b>  <a href="https://www.academia.edu/41117435/Why_Rishikesh_Vinyasa_Yoga_School_is_Top-Rated_School_for_YTT_in_Rishikesh"> Why Rishikesh Vinyasa Yoga School is Top-Rated School for YTT in Rishikesh?</a>
