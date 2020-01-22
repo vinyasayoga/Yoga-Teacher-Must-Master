@@ -1,4 +1,4 @@
-Being a yoga teacher brings a lot of responsibility on your shoulders. It is not just limited to teaching the poses of Yoga but goes farther behind imparting the treasure of ancient art to others. But before bestowing the Yogic wisdom and becoming a Yoga instructor, one needs to undergo <a href="https://rishikeshvinyasayogaschool.com/yoga-teacher-training-india/"yoga teacher training in India></a>. But before we go into details, let us discuss.
+Being a yoga teacher brings a lot of responsibility on your shoulders. It is not just limited to teaching the poses of Yoga but goes farther behind imparting the treasure of ancient art to others. But before bestowing the Yogic wisdom and becoming a Yoga instructor, one needs to undergo <a href="https://rishikeshvinyasayogaschool.com/yoga-teacher-training-india/" yoga teacher training in India></a>. But before we go into details, let us discuss.
 <p><h2>What every yoga teacher must know?</h2></p>
 <img src="https://rishikeshvinyasayogaschool.com/wp-content/uploads/2019/05/Various-Styles-of-Yoga-1170x658.jpg" alt="yoga teacher training">
 <ul>
@@ -18,4 +18,4 @@ Being a yoga teacher brings a lot of responsibility on your shoulders. It is not
 
 <p>Learning never stops in your life. Hence try to evolve continuously by attending workshops, training, and retreats. No matter how much experienced you become as a yoga trainer, never stop learning. It will help you become more innovative with your teachings.</p>
 
-<b>Also read:</b>  <a href="https://www.academia.edu/41117435/Why_Rishikesh_Vinyasa_Yoga_School_is_Top-Rated_School_for_YTT_in_Rishikesh"Why Rishikesh Vinyasa Yoga School is Top-Rated School for YTT in Rishikesh?></a>
+<b>Also read:</b>  <a href="https://www.academia.edu/41117435/Why_Rishikesh_Vinyasa_Yoga_School_is_Top-Rated_School_for_YTT_in_Rishikesh" Why Rishikesh Vinyasa Yoga School is Top-Rated School for YTT in Rishikesh?></a>
