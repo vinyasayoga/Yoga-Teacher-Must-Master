@@ -1,3 +1,4 @@
+<h1>Six Guiding Tips Every Yoga Teacher Must Master</h1>
 Being a yoga teacher brings a lot of responsibility on your shoulders. It is not just limited to teaching the poses of Yoga but goes farther behind imparting the treasure of ancient art to others. But before bestowing the Yogic wisdom and becoming a Yoga instructor, one needs to undergo <a href="https://rishikeshvinyasayogaschool.com/yoga-teacher-training-india/"> yoga teacher training in India</a>. But before we go into details, let us discuss.
 <p><h2>What every yoga teacher must know?</h2></p>
 <img src="https://rishikeshvinyasayogaschool.com/wp-content/uploads/2019/05/Various-Styles-of-Yoga-1170x658.jpg" alt="yoga teacher training">
